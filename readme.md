@@ -1,4 +1,4 @@
-This is the other version of French Fries, Whether the French Fries was founded by Americans but German Fries was founded by Me Yeshwanth follow the steps to form German Fries.
+This is the other version of French Fries, Whether the French Fries was founded by Americans but German Fries was founded by Me follow the steps to form German Fries.
 
 Ingredients : 
 Potatoes, Vegetable Oil (Canola Oil, Soybean Oil, Hydrogenated Soybean Oil)
